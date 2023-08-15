@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luanzin0
-- 👀 I’m interested in baquete
+- 👀 I’m interested in basquete
 - 🌱 I’m currently learning joga basquete
 - 💞️ I’m looking to collaborate on projtos
 - 📫 How to reach me luan.justos@escola.pr.gov.br
